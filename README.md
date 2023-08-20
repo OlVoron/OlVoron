@@ -2,4 +2,4 @@
   </a> 
 <h4> I'm a QA Manual and Automation Engineer </h4>
 
-![Screnshot](https://github.com/https://github.com/OlVoron/OlVoron/blob/main/111.png)
+![Screnshot](https://github.com/https://github.com/OlVoron/OlVoron/blob/main/quality-assurance-company-1024x581-1.jpg)
